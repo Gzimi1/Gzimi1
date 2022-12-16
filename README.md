@@ -1,5 +1,8 @@
 - 👋 Hi, I’m @Gzimi1
-- 👀 I’m interested in ...mining
+- gvcghvolvlv👀 I’m interested in ...mining
+hvbuhovbuvbhypb
+hbvpubhyb
+
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
